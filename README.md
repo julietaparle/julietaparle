@@ -8,6 +8,8 @@
 
 📫 Let's get in touch:
 
+*Portfolio: https://julietaparle.web.app/
+
 *Email: julieta.parle@hotmail.com;
   
 *Linkedin: https://www.linkedin.com/in/julieta-parle/;
